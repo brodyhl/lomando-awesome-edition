@@ -1,3 +1,3 @@
-# lomando-awesome-edition
+# lomando awesome edition
 
-## lomando awesome edition
+lomando but awesome
